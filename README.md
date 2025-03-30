@@ -27,4 +27,4 @@
 ## 📌 Autor
 
 - **Letícia Zago de Souza** – [www.linkedin.com/in/letícia-zago-de-souza](https://www.linkedin.com/in/let%C3%ADcia-zago-de-souza)
-- **Ana Carolina Reis Santana** - [wwww.linkedin.com/in/ana-carolina-santana] (https://www.linkedin.com/in/ana-carolina-santana-9a0a78232)
+- **Ana Carolina Reis Santana** – [www.linkedin.com/in/ana-carolina-santana](https://www.linkedin.com/in/ana-carolina-santana-9a0a78232)
